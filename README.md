@@ -13,3 +13,5 @@
 
 
 ## プレイ動画
+
+https://github.com/user-attachments/assets/5e591e9b-0bbf-4dc8-b54a-eddc38f80a56
